@@ -1,0 +1,1 @@
+My name is Leah Chamberlain and I am from Idaho Falls, ID. My favorite food is Indian and I love to watch movies and read books.
